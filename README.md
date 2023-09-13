@@ -3,4 +3,6 @@
 meu nome e dany
 🧃
 -estou estudando na alura
-ultilizo essse espsco para minhaa orgnizacao e compartilhamento dor meus projetos desenvolvimentos                                                                                                                                                                                                                                                                                                                                                                                                                                                                       
+ultilizo essse espaço para minha orgnizaçao e compartilhamento dos meus projetos desenvolvimentos                                                                                                                                                                                                                                                                                                                                                                                                                                                                       
+entrar em contato cmg 
+@dznilih.z
