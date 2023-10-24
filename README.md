@@ -9,3 +9,5 @@ ultilizo essse espaço para minha orgnizaçao e compartilhamento dos meus projet
 
 
 ![](https://media.tenor.com/7h7Zzm7oMJUAAAAC/serious-bakugou.gif)
+daniely.malaquias@escola.pr.com.br
+@daniely.samara@gmail.com
